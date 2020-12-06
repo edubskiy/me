@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [dubskiy.com](dubskiy.com)
 
-- ⚡ Fun fact **I have 3 children, teach chidlren to play with robots and love running**
+- ⚡ Fun fact **I have 3 children, teach children to play with robots and love running**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
